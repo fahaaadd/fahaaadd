@@ -1,6 +1,5 @@
 - 👋 Hi, I’m @fahaaadd
 - 🌱 I’m currently doing bachelors degree and computer sciences is my major
-- 💞️ I’m looking to collaborate with different people to learn as much possible
 - 📫 How to reach me just email at mfahadsal216@gmail.com
 
 <!---
